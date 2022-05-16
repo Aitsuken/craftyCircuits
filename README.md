@@ -8,19 +8,19 @@ Learn electronics with Minecraft!
 
 ### List of contributors
 
-Ulan Sydygaliev
+Ulan Sydygaliev<br />
 _______________
-· Working as narrator
-· Generating ideas
-· Video Editing
-Erzhan Talantbekov
+· Working as narrator<br />
+· Generating ideas<br />
+· Video Editing<br />
+Erzhan Talantbekov<br />
 _______________
-· Helping with building the zone
-· Consulting on editing media
+· Helping with building the zone<br />
+· Consulting on editing media<br />
 
-Aidana Zhamangulova
+Aidana Zhamangulova<br />
 _______________
-· Helping to prepare 
-· Helping with ideas
-· Speech preparations
-· Research on topics
+· Helping to prepare <br />
+· Helping with ideas<br />
+· Speech preparations<br />
+· Research on topics<br />
