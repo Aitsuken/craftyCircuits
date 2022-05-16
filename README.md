@@ -12,15 +12,15 @@ Ulan Sydygaliev<br />
 _______________
 · Working as narrator<br />
 · Generating ideas<br />
-· Video Editing<br />
+· Video Editing<br /><br />
 Erzhan Talantbekov<br />
 _______________
 · Helping with building the zone<br />
-· Consulting on editing media<br />
+· Consulting on editing media<br /><br />
 
 Aidana Zhamangulova<br />
 _______________
 · Helping to prepare <br />
 · Helping with ideas<br />
 · Speech preparations<br />
-· Research on topics<br />
+· Research on topics<br /><br />
