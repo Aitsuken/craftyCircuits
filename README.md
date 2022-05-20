@@ -24,3 +24,7 @@ _______________
 · Helping with ideas<br />
 · Speech preparations<br />
 · Research on topics<br /><br />
+
+## Link to the Playlist
+
+https://youtube.com/playlist?list=PLTO887SmbZzQkYAn-pWSoyGzI7w-s7ujZ<br />
